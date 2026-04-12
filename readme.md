@@ -1,1 +1,1 @@
-"gay"
+"sam gay"
